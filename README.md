@@ -1,0 +1,1 @@
+Šajā spēlē jāsargā asv robeža no meksikāņiem un jāķer tos kas cenšās ienākt. spēlē jāvāc punkti noķerot meksikāņus ar tīklu, bet ir jāuzmanas neiesprūst tajā, ja nesavāc pietiekamus punktus robeža nojūk un meksikāņi brīvi nāk iekšā.
